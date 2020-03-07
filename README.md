@@ -1,1 +1,1 @@
-# CWI reset é demais
+# CWI Reset é demais!
